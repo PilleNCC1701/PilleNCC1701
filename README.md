@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @PilleNCC1701
-- 👀 I’m interested in computers.
+- 👀 I’m interested in computers and green technologies.
 - 🌱 I’m currently learning the profession of IT specialist.
 - 💞️ I’m looking to collaborate in green energy supply.
 - 📫 How to reach me . I'll introduce myself to you.
